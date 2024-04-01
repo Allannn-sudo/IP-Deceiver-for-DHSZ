@@ -1,4 +1,4 @@
 Fuck the RESTRICTIONS of the SCHOOL WEB
 
-Enjoy swimming in DHSZ!!!!!!
+Enjoy swimming/gaming/watering in DHSZ!!!!!!
 🥰🥰🥰🥰🥰🥰🥰🥰🥰
